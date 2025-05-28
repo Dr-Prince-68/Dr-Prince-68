@@ -19,8 +19,12 @@ $\color{#FF0000}{"-SCP✧963~(DNI~AB/JB~users"}$
 $\color{#FF0000}{"-Black~forest"}$
 $\color{#FF0000}{"-Kindred(Specifically~Lamb)"}$
 
+ 
 <p align=" center">
 I do not like fighting with people over ships, especially if they arent illegal or actually bad. I WILL NOT ARGUE ABOUT DECEIT POLYCULE, ME AND MY POLYCULE IRL HAVE CONNECTED OURSELVES TO DECEIT POLYCULE AND WE DO NOT WANT TO ARGUE WITH PEOPLE WHO SEE THEM AS FAMILY. We can just hold hands, I do not see anything wrong with family headcanons aslong as you dont use them to try and call me a bad person.
+
+<p align=" center">
+  I dont mind if other black sapphires/shadow milks/pure vanillas or truthless recluses sit with me or wanna talk! Friends are always allowed to come sit and talk to me even if i may be afk! I love making new friends, but do note not every deceit guy i sit with is my polycule (they rarely go on ponytown).
 
 <p align="center">
   <img width="300" height="100" src="https://s14.gifyu.com/images/bxHqv.png">
