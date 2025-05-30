@@ -8,6 +8,9 @@
 </p>
 
 <p align=" center">
+$\color{#FF0000}{"✧French/English✧"}$
+  
+<p align=" center">
 I tend to be afk or doing stuff while on ponytown, but if you whisper to me I will eventually answer back! I am very into league, cookie run, valorant, horror games of any kind, hollow knight, and baldur's gate. If you like these things I would be down to chill!
 <p align=" center">
 Some notes about me: Due to my mental illnesses I heavily connect with characters almost like plurality (not sure if theres a better term for it). In this case for me, I heavily associate myself with these characters:
@@ -25,6 +28,7 @@ I do not like fighting with people over ships, especially if they arent illegal 
 
 <p align=" center">
   I dont mind if other black sapphires/shadow milks/pure vanillas or truthless recluses sit with me or wanna talk! Friends are always allowed to come sit and talk to me even if i may be afk! I love making new friends, but do note not every deceit guy i sit with is my polycule (they rarely go on ponytown).
+
 
 <p align="center">
   <img width="300" height="100" src="https://s14.gifyu.com/images/bxHqv.png">
