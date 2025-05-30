@@ -8,7 +8,7 @@
 </p>
 
 <p align=" center">
-$\color{#FF0000}{"✧French/English✧"}$
+$\color{#FF0000}{"✧English/French✧"}$
   
 <p align=" center">
 I tend to be afk or doing stuff while on ponytown, but if you whisper to me I will eventually answer back! I am very into league, cookie run, valorant, horror games of any kind, hollow knight, and baldur's gate. If you like these things I would be down to chill!
