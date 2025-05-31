@@ -2,7 +2,7 @@
   <img width="300" height="300" src="https://s14.gifyu.com/images/bxHm2.gif">
 </p>
 <p align=" center">
-  $\color{#FF0000}{"Seriously?~Going~against~THE~Candy~Apple~Cookie?"}$
+  $\color{#FF0000}{"Seriously?~Going~against~THE~Candy~Apple~Cookie?"}
 <p align="center">
   <img width="900" height="100" src="https://s14.gifyu.com/images/bxHmx.png">
 </p>
@@ -15,12 +15,12 @@ I tend to be afk or doing stuff while on ponytown, but if you whisper to me I wi
 <p align=" center">
 Some notes about me: Due to my mental illnesses I heavily connect with characters almost like plurality (not sure if theres a better term for it). In this case for me, I heavily associate myself with these characters:
 <p align=" center">
-$\color{#FF0000}{"-✧Phosphophyllite✧"}$
-$\color{#FF0000}{"-Grian"}$
-$\color{#FF0000}{"-Candy~apple"}$
-$\color{#FF0000}{"-SCP✧963~(DNI~AB/JB~users"}$
-$\color{#FF0000}{"-Black~forest"}$
-$\color{#FF0000}{"-Kindred(Specifically~Lamb)"}$
+$\color{#FF0000}{"-✧Phosphophyllite✧"}
+$\color{#FF0000}{"-Grian"}
+$\color{#FF0000}{"-Candy~apple"}
+$\color{#FF0000}{"-SCP✧963~(DNI~AB/JB~users"}
+$\color{#FF0000}{"-Black~forest"}
+$\color{#FF0000}{"-Kindred(Specifically~Lamb)"}
 
  
 <p align=" center">
@@ -35,7 +35,7 @@ I do not like fighting with people over ships, especially if they arent illegal 
 </p>
 
 <p align=" center">
-$\color{#FF0000}{"MORE~SPECIFICS~HERE"}$
+$\color{#FF0000}{"MORE~SPECIFICS~HERE"}
 
 <p align=" center">
 <a href="https://dr-prince.carrd.co/">✧✧✧✧✧✧</a>
