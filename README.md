@@ -19,7 +19,7 @@ Some notes about me: Due to my mental illnesses I heavily connect with character
 
  
 <p align=" center">
-I do not like fighting with people over ships, especially if they arent illegal or actually bad. I WILL NOT ARGUE ABOUT DECEIT POLYCULE, ME AND MY POLYCULE IRL HAVE CONNECTED OURSELVES TO DECEIT POLYCULE AND WE DO NOT WANT TO ARGUE WITH PEOPLE WHO SEE THEM AS FAMILY. We can just hold hands, I do not see anything wrong with family headcanons aslong as you dont use them to try and call me a bad person.
+I do not like fighting with people over ships, and I wont partake in ship discourse, I instead just block people. I WILL NOT ARGUE ABOUT DECEIT POLYCULE, ME AND MY POLYCULE IRL HAVE CONNECTED OURSELVES TO DECEIT POLYCULE AND WE DO NOT WANT TO ARGUE WITH PEOPLE WHO SEE THEM AS FAMILY. We can just hold hands, I do not see anything wrong with family headcanons aslong as you dont use them to try and call me a bad person.
 
 <p align=" center">
   I dont mind if other black sapphires/shadow milks/pure vanillas or truthless recluses sit with me or wanna talk! Friends are always allowed to come sit and talk to me even if i may be afk! I love making new friends, but do note not every deceit guy i sit with is my polycule (they rarely go on ponytown).
