@@ -13,7 +13,7 @@
 <p align=" center">
 I tend to be afk or doing stuff while on ponytown, but if you whisper to me I will eventually answer back! I am very into league, cookie run, valorant, horror games of any kind, hollow knight, and baldur's gate. If you like these things I would be down to chill!
 <p align=" center">
-Some notes about me: Due to my mental illnesses I heavily connect with characters almost like plurality (not sure if theres a better term for it). In this case for me, I heavily associate myself with these characters:
+Some notes about me: Due to my mental illnesses I heavily connect with characters almost like plurality (not sure if theres a better term for it, but it comes from my dissociative disorder). In this case for me, I heavily associate myself with these characters:
 <p align=" center">
 <img width="800" height="20" src="https://s14.gifyu.com/images/bxEcr.png">
 
