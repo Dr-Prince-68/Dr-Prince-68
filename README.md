@@ -11,7 +11,7 @@
 <img width="150" height="20" src="https://s14.gifyu.com/images/bxEc5.png">
   
 <p align=" center">
-I tend to be afk or doing stuff while on ponytown, but if you whisper to me I will eventually answer back! I am very into league, deltarune, cookie run, valorant, horror games of any kind, hollow knight, and baldur's gate. If you like these things I would be down to chill!
+I tend to be afk or doing stuff while on ponytown, but if you whisper to me I will eventually answer back! I am very into HOUSE MD (BIGGEST INTEREST PLEASE TALK TO ME ABOUT HOUSE), league, deltarune, cookie run, bojack horseman, valorant, horror games of any kind, hollow knight, wakfu, and baldur's gate. If you like these things I would be down to chill!
 <p align=" center">
 Some notes about me: Due to my mental illnesses I heavily connect with characters in either a loving manner that feels like real love or almost like plurality (not sure if theres a better term for it, but it comes from my dissociative disorder). In this case for me, I heavily associate myself with these characters:
 <p align=" center">
