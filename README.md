@@ -6,6 +6,7 @@
 <p align="center">
   <img width="900" height="100" src="https://s14.gifyu.com/images/bxHmx.png">
 </p>
+![](https://komarev.com/ghpvc/?username=Dr-Prince-68&color=red)
 
 <p align=" center">
 <img width="150" height="20" src="https://s14.gifyu.com/images/bxEc5.png">
