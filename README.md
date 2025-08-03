@@ -37,7 +37,7 @@ Simp chart including every character I have ever in my life simped for
 </p>
  
 <p align=" center">
-I do not like fighting with people over ships, and I wont partake in ship discourse, I instead just block people. I am heavily attached to Tenna and do selfship incredibly with him, and dont want to argue with people about it (I do get a bit protective of him, but I dont mind other selfshippers, but id prefer not talking about it.) 
+I do not like fighting with people over ships, but I do like talking about ships and how fandom culture is! I absolutely WONT argue with you or talk ships if you don't know what the terms you are saying mean (ie. shipping discourse terms, because most of you dont know the history behind these terms or what they actually mean), I instead just block people. I am heavily attached to Tenna and do selfship incredibly with him, and dont want to argue with people about it (I do get a bit protective of him, but I dont mind other selfshippers, but id prefer not talking about it.) 
   
 <p align=" center">
   When dressed as Tenna I dont mind ships (IM A HUGE QUEENTENNA FAN, and love battatenna), except spamtenna (it makes me slightly uncomfortable, but IDM spamtenna shippers! I just probably won't do anything spamtenna and would prefer to not have it directed at me! ^^) every other ship should be okay (within reason)!
