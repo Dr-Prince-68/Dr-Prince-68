@@ -17,7 +17,7 @@ I tend to be afk or doing stuff while on ponytown, but if you whisper to me I wi
 <p align=" center">
 Some notes about me: Due to my mental illnesses I heavily connect with characters in either a loving manner that feels like real love or almost like plurality (not sure if theres a better term for it, but it comes from my dissociative disorder). In this case for me, I heavily associate myself with these characters:
 <p align=" center">
-<img width="800" height="20" src="https://s14.gifyu.com/images/bNVnx.png">
+<img width="800" height="20" src="https://s14.gifyu.com/images/bNV4p.png">
 
 <p align=" center">
 
