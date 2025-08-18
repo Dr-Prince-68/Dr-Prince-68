@@ -46,7 +46,7 @@ I do not like fighting with people over ships, but I do like talking about ships
 </p>
 
 <p align=" center">
-  <img width="200" height="50" src="https://s14.gifyu.com/images/bxEgD.png">
+  <img width="200" height="50" src="https://s14.gifyu.com/images/bNVg4.png">
 
 <p align=" center">
 <a href="https://dr-prince.carrd.co/">✧✧✧✧✧✧</a>
