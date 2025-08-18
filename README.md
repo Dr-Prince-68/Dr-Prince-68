@@ -20,7 +20,7 @@ Some notes about me: Due to my mental illnesses I heavily connect with character
 <img width="800" height="20" src="https://s14.gifyu.com/images/bNVnx.png">
 
 <p align=" center">
-Current biggest character love:
+
 </p>
 <p align=" center">
 <img width="200" height="300" src="https://s14.gifyu.com/images/bNVnc.gif">
@@ -42,7 +42,7 @@ I do not like fighting with people over ships, but I do like talking about ships
   I dont mind if you wanna sit with me! anyone is allowed aslong as your not in my iwc list in my carrd. Please lmk (if possible) if you take inspo from me (i just like to know! hehe)
 
 <p align="center">
-  <img width="500" height="100" src="https://s14.gifyu.com/images/bxHqv.png">
+  <img width="500" height="100" src="https://s14.gifyu.com/images/bNVgw.gif">
 </p>
 
 <p align=" center">
