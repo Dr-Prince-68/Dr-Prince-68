@@ -42,7 +42,7 @@ I do not like fighting with people over ships, but I do like talking about ships
   I dont mind if you wanna sit with me! anyone is allowed aslong as your not in my iwc list in my carrd. Please lmk (if possible) if you take inspo from me (i just like to know! hehe)
 
 <p align="center">
-  <img width="500" height="100" src="https://s14.gifyu.com/images/bNVgw.gif">
+  <img width="200" height="200" src="https://s14.gifyu.com/images/bNVgw.gif">
 </p>
 
 <p align=" center">
