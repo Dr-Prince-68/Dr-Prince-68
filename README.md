@@ -13,7 +13,7 @@
 <img width="150" height="20" src="https://s14.gifyu.com/images/bNVl0.png">
   
 <p align=" center">
-I tend to be afk or doing stuff while on ponytown, but if you whisper to me I will eventually answer back! I am very into House MD, Mob psycho 100, league, deltarune, cookie run, bojack horseman, portal, valorant, horror games of any kind, hollow knight, wakfu, and baldur's gate. If you like these things I would be down to chill!
+I tend to be afk or doing stuff while on ponytown, but if you whisper to me I will eventually answer back! I am very into House MD, Mob psycho 100, SCP, league, deltarune, cookie run, bojack horseman, portal, valorant, horror games of any kind, hollow knight, wakfu, and baldur's gate. If you like these things I would be down to chill!
 <p align=" center">
 Some notes about me: Due to my mental illnesses I heavily connect with characters in either a loving manner that feels like real love or almost like plurality (not sure if theres a better term for it, but it comes from my dissociative disorder). In this case for me, I heavily associate myself with these characters:
 <p align=" center">
