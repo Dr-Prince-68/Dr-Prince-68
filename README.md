@@ -15,7 +15,7 @@
 <p align=" center">
 I tend to be afk or doing stuff while on ponytown, but if you whisper to me I will eventually answer back! I am very into House MD, Mob psycho 100, SCP, league, deltarune, cookie run, bojack horseman, portal, valorant, horror games of any kind, hollow knight, wakfu, and baldur's gate. If you like these things I would be down to chill!
 <p align=" center">
-Some notes about me: Due to my mental illnesses I heavily connect with characters in either a loving manner that feels like real love or almost like plurality (not sure if theres a better term for it, but it comes from my dissociative disorder). In this case for me, I heavily associate myself with these characters:
+Some notes about me: I HAVE UDD! And different personalities, I don't consider them full alters since despite dissociation between parts of it or during some the personalities aren't fully seperate from me. However, they do have sources, different views on things, and can act very different. Some are based on fictional characters such as these:
 <p align=" center">
 <img width="800" height="20" src="https://s14.gifyu.com/images/bTiGI.png">
 
