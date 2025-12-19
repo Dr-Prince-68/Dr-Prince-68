@@ -17,7 +17,7 @@ I tend to be afk or doing stuff while on ponytown, but if you whisper to me I wi
 <p align=" center">
 Some notes about me: I HAVE UDD! And different personalities, I don't consider them full alters since despite dissociation between parts of it or during some the personalities aren't fully seperate from me. However, they do have sources, different views on things, and can act very different. I can also just tend to attach to characters easily. Such as these (OUTDATED, NEED TO FIX TO PROPERLY REPRESENT THE PERSONALITIES IN OUR MIND):
 <p align=" center">
-<img width="800" height="20" src="https://s14.gifyu.com/images/bTiGI.png">
+<img width="800" height="20" src="">
 
 <p align=" center">
 
